@@ -1,1 +1,0 @@
-# My-system-mind-maps
